@@ -1,1 +1,1 @@
-# Media--T-cnica-
+# Media-Técnica
